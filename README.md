@@ -1,1 +1,0 @@
-# minhquan10k
